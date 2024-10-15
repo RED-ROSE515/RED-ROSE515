@@ -1,6 +1,6 @@
 # Hi, I'm RED ROSE (💻💖☕)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=comfortaa&color=016EEA&size=24&width=500&lines=Self-taught+Software+Engineer;Open-Source+Maintainer;Open-Source+Advocate;Cybersecurity+Researcher;Web3+Enthusiast;Technopreneur)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=comfortaa&color=016EEA&size=24&width=500&lines=Self-taught+Software+Engineer;Open-Source+Maintainer;Open-Source+Advocate;Cybersecurity+Researcher;Staff+React+Developer;Technopreneur)](https://git.io/typing-svg)
 
 𝐓𝐨𝐩 - 𝐓𝐚𝐥𝐞𝐧𝐭 𝐢𝐧 𝐖𝐄𝐁 & 𝐃𝐄𝐒𝐊𝐓𝐎𝐏 𝐄𝐧𝐠𝐢𝐧𝐞𝐞𝐫𝐢𝐧𝐠 (𝐓𝐲𝐩𝐞𝐒𝐜𝐫𝐢𝐩𝐭/𝐑𝐞𝐚𝐜𝐭/𝐂#/.𝐍𝐄𝐓/𝐖𝐂𝐅/𝐄𝐥𝐞𝐜𝐭𝐫𝐨𝐧/𝐆𝐨𝐋𝐚𝐧𝐠)
 
